@@ -1,1 +1,1 @@
-sorry for my bad explanation, english is not even my second language, i also got confused in the last part(testing the screenshit tool) because before recording the image was saved with the exe but then saved to another folder!
+sorry for my bad explanation, english is not even my second language
